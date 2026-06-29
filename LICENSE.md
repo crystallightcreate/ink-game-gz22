@@ -1,4 +1,4 @@
-# 
+# advanced Script for ink game offers the most advanced ink game Script, with invisibility and unlimited stamina. Perfect for dominating any match.
 
 
 
